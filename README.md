@@ -1,2 +1,0 @@
-# centro-cristiano
- servicio comunitario
